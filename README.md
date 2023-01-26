@@ -1,2 +1,2 @@
 # Hi everyone👋
-https://apps.apple.com/jp/app/shichimi/id1452292881
+<blockquote class="twitter-tweet"><p lang="ja" dir="ltr">いいねで願い事が叶います<br>🎍良いお年を〜🎍<br><br>　　　 ／⌒ヽ<br>　　 ／　　　＼<br>　　/　ｲｲﾈ　 丶 ＼<br>　 (/　 の　丶　)<br>　 /　 妖　　丶”<br>　f 精　　 i<br>　| 　 ‘ᾥ’ 　　 |<br>　|　　 　　　|<br>　ヽ＿＿ 　 　ノ<br>　 丿ﾉ ﾉ丁丁￣l＼<br>　く(_(_(＿L＿)ノ</p>&mdash; shichimi Ξ  :)ᵍᵐ (@shichimi_0_o) <a href="https://twitter.com/shichimi_0_o/status/1607003233830174727?ref_src=twsrc%5Etfw">December 25, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
